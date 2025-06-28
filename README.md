@@ -36,7 +36,7 @@ Passionate about safeguarding digital ecosystems through ethical hacking, networ
 
 ## 🌐 Social Links
 
-- [LinkedIn: Aayush Chaurasiya](https://www.linkedin.com/in/aayush-chaurasiya)
+- [LinkedIn: Aayush Chaurasiya](https://www.linkedin.com/in/aayush-chaurasiya-a041762b4/)
 
 ---
 
